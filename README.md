@@ -1,4 +1,4 @@
-![Diwash0007-Header](https://github.com/Diwash0007/Diwash0007/assets/140302453/961476f1-0691-4808-bfa9-29d7938dd39a)
+![Diwash0007'sDynamicHeader](https://github.com/Diwash0007/Diwash0007/assets/140302453/7e1ca5f7-6826-4e87-a89b-bf33e2f13fc9)
 
 <!--
 ### Hi there 👋
